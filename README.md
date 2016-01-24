@@ -7,18 +7,18 @@
 - Can put out company swag at event
 - Thanked during intro by organizer
 
-2) Food & Drink Sponsor: $150
+2) Food & Drink Sponsor: $149
 - Company write up in the event invite
 - Can put out company swag at event
 - Thanked during intro by organizer
 
-3) Child Care Sponsor: $200
+3) Child Care Sponsor: $199
 - Logo on the meetup page leading up to the event
 - Company write up in the event invite
 - Can put out company swag at event
 - Thanked during intro by organizer
 
-4) Event Sponsor: $500
+4) Event Sponsor: $499
 - Logo on the meetup page leading up to the event
 - Company write up in the event invite
 - Can put out company swag at event
