@@ -1,6 +1,6 @@
 # Sponsorship Package
 
-##Tiers:
+##Monthly Tiers:
 1) Venue Sponsor: FREE
 - Logo on the meetup page leading up to the event
 - Company write up in the event invite
