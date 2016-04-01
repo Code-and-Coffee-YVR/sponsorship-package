@@ -7,7 +7,7 @@
 - Can put out company swag at event
 - Thanked during intro by organizer
 
-2) Food & Drink Sponsor: $149
+2) Food & Drink Sponsor: $199
 - Company write up in the event invite
 - Can put out company swag at event
 - Thanked during intro by organizer
