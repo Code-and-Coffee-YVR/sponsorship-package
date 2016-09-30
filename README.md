@@ -13,7 +13,7 @@ Code & Coffee Vancouver offers one benefits tier to any and all cash sponsors.  
 - Logo on Code & Coffee Vancouver website
 - Logo placement (via video editing) on our recorded talks from each event
 
-##### Sponsorship rates are (We run 12 events per year):</br>
+##### Sponsorship rates are (we run 12 events per year):
 - Month to Month $250</br>
 - 6 Months $1300</br>
 - 12 Months $2400</br>
@@ -23,7 +23,7 @@ Code & Coffee Vancouver offers one benefits tier to any and all cash sponsors.  
 Code & Coffee Vancouver has been hosted by Mobify for the last 2 years, however company priorities and sometimes (in this case) locations occasionally change.  We are always open to consider new Venue Sponsors and will openly communicate any existing agreements that we may have with our current location.</br>
 *As of October 2016 we are currently looking for a new long term host.*
 
-##### The Venue Sponsor is provided with all benefits of Cash Sponsors +
+##### The Venue Sponsor is provided with all benefits of Cash Sponsors including the following:
 - Can say a few words at each meetup
 </br>
 </br>
