@@ -5,7 +5,7 @@ Code & Coffee Vancouver offers one benefits tier to any and all cash sponsors.  
 
 ##### Each sponsor is provided with the following benefits:
 - Logo on the meetup home page, sponsors page, and event pages at meetup.com (link above)
-- Company write up in the event invitation (a monthly email to more than 3200 programmers and tech enthusiasts)
+- Company write up in the event invitation (a monthly email to more than 4750 programmers and tech enthusiasts)
 - Company marketing materials distributed at each event
 - Personalized mention by our MC at each event
 
