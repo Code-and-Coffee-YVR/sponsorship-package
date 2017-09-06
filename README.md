@@ -20,8 +20,8 @@ Code & Coffee Vancouver offers one benefits tier to any and all cash sponsors.  
 - 12 Month Exclusive Sponsor $4000
 
 ## Venue Sponsor
-Code & Coffee Vancouver has been hosted by Mobify for the last 2 years, however company priorities and sometimes (in this case) locations occasionally change.  We are always open to consider new Venue Sponsors and will openly communicate any existing agreements that we may have with our current location.</br>
-*As of October 2016 we are currently looking for a new long term host.*
+Code & Coffee Vancouver has been hosted by Mobify for the last 3 years, however company priorities and sometimes locations occasionally change.  We are always open to consider new Venue Sponsors and will openly communicate any existing agreements that we may have with our current location.</br>
+*As of 2017 we are currently hosted by Mobify - Suite 420, 725 Granville Street.*
 
 ##### The Venue Sponsor is provided with all benefits of Cash Sponsors including the following:
 - Can say a few words at each meetup
